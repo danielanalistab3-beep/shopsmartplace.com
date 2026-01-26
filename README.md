@@ -1,0 +1,1 @@
+# shopsmartplace.com
